@@ -1,1 +1,1 @@
-# experiment-inclusion-exlucion-mindselt
+# experiment-inclusion-exlucion-mindset
